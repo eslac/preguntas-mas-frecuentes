@@ -31,5 +31,7 @@
 
 
 <p>La documentación fue entregada en cinco cajas acompañadas de un escrito firmado por Conan Castro, secretario jurídico de la presidencia en representación de Nayib Bukele, presidente de El Salvador y comandante general de la Fuerza Armada, según consta en el recibo que emitió el tribunal y al que CNN tuvo acceso.
+  
+  https://es.wikipedia.org/wiki/Masacre_de_El_Mozote
 </details>
 
